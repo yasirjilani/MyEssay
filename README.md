@@ -6,3 +6,4 @@ When i saw that there is rise in demand of AI i made descion to pursue programmi
 I am staring PIAIC. This is big challenge for me becuase i want to prove myself.
 I want to learn generative AI from PIAIC.
 PIAIC will help me build a successful future.
+I want to become a top rated freelancer in Data Science and AI.
