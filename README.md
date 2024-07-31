@@ -7,3 +7,4 @@ I am staring PIAIC. This is big challenge for me becuase i want to prove myself.
 I want to learn generative AI from PIAIC.
 PIAIC will help me build a successful future.
 I want to become a top rated freelancer in Data Science and AI.
+With the help of my respected teachers i will achieve my goal.
